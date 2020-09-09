@@ -5,7 +5,3 @@ Welcome to my website for my Twine Game, created for the course IASC IP04 at Bro
 ## Playtest
 
 Play test my game [here]
-
-## Game Proposal Document
-
-Read the documentation for my game [here]
