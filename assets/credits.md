@@ -34,6 +34,10 @@
 
 ---
 
+"Road Closed" by pennstatenews is licensed under CC BY-NC 2.0
+
+---
+
 "staff house at newington children's hospital (abandoned)" by sandcastlematt is licensed under CC BY-NC 2.0
 
 ---
