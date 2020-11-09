@@ -1,1 +1,6 @@
+# Parestate
 
+## Play the game
+Play the game prototype [here](prototype/ParestatePrototype.html)
+
+## Complete the survey
