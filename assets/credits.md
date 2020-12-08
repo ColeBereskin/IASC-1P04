@@ -57,6 +57,10 @@
 "lost and forgotten" by Tom Roberts on Unsplash
 
 ---
+
+"Lost Places" by Denny Müller on Unsplash
+
+---
 "Road Closed" by pennstatenews is licensed under CC BY-NC 2.0
 
 ---
