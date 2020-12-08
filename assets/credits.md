@@ -1,3 +1,7 @@
+"" by Daniel Lincoln on Unsplash
+
+---
+
 "A Quiet Street" by Chris Hunkeler is licensed under CC BY-SA 2.0
 
 ---
@@ -38,7 +42,15 @@
 
 ---
 
+"decay" by Tom Roberts on Unsplash
+
+---
+
 "door" by Kael Bloom on Unsplash
+
+---
+
+"lost and forgotten" by Tom Roberts on Unsplash
 
 ---
 "Road Closed" by pennstatenews is licensed under CC BY-NC 2.0
@@ -50,5 +62,14 @@
 ---
 
 "Time" by Yener Ozturk on Unsplash
+
+---
+
+
+"Uga Radar Facility, Chernobyl 2 - Chernobyl Exclusion Zone, Ukraine" by Mick De Paola on Unsplash
+
+---
+
+"Urbex – Abandoned Toilet" by Radek Homola on Unsplash
 
 ---
